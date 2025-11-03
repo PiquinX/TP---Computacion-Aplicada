@@ -1,1 +1,1 @@
-Miembros del grupo: Santiago Piquin Villegas
+Miembros del grupo: ENZO BELTEMPO BOREL, BRIAN CACCIA, ROMINA EVELIN ORTIZ, FEDERICO ZAPATA y SANTIAGO PIQUIN VILLEGAS
