@@ -1,1 +1,1 @@
-Miembros del grupo: ENZO BELTEMPO BOREL, BRIAN CACCIA, ROMINA EVELIN ORTIZ, FEDERICO ZAPATA y SANTIAGO PIQUIN VILLEGAS
+Miembros del grupo: Enzo Beltempo Borel, Brian Caccia, Romina Evelin Ortiz, Federico Zapata y Santiago Piquin Villegas
